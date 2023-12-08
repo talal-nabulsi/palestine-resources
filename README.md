@@ -23,6 +23,10 @@ remains a deeply significant and painful historical event for them. The term is 
 
 ## Israel's apartheid in the West Bank
 
+
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/b4d3ad96-2b78-435f-a075-a3d210cf89b9" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="150" />
+
+
 ### Amnesty Imternationals report on Israeli apartheid
 https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/
 
@@ -35,10 +39,23 @@ https://www.btselem.org/topic/apartheid
 ### Home Demolitions
 - Netanyahu bragging about how he destroyed the Oslo Accords in order to keep control over most of the land in the West bank: https://www.youtube.com/watch?v=S7PyhTEQYtQ
 
-### Settler Violence
+### Israeli Settler Violence
+Israeli settlers in the West Bank routinely harrass and attack Palestinians in the West Bank with impunity. Israeli settlers, have burned down thousands of Palestinian olive trees, attacked farmers grazing their land, and stone Palestinian children walking to school, all under the protection of the Israeli military
 
+- Amnesty International report on Israel's settler violence: https://www.amnesty.org/en/latest/news/2023/03/israel-opt-impunity-reigns-for-perpetrators-of-settler-violence/
+- Btselem report on settler violence https://www.btselem.org/topic/settler_violence
 - Huwara pogrom - https://www.cnn.com/2023/06/15/middleeast/huwara-west-bank-settler-attack-cmd-intl/index.html
 > CNN found that, not only did the forces fail to stop the riots in Huwara, they did not protect residents as settlers set fire to Palestinian homes and businesses and blocked emergency services from responding. Instead, when residents threw rocks in reaction to the settlers’ aggression, Israeli forces fired at the Palestinians with tear gas and stun grenades, according to analysis of the footage and eyewitness accounts.
+
+
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/0128907a-38ba-4cf8-9f22-26be54bc91a1" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="500" height="500" />
+
+
+## Gaza
+- Amnesty International's report on the Siege on Gaza -  https://www.amnesty.org/en/latest/news/2023/10/israel-opt-israel-must-lift-illegal-and-inhumane-blockade-on-gaza-as-power-plant-runs-out-of-fuel/
+- Chemical wepaons usage on Gaza - https://www.hrw.org/news/2023/10/12/israel-white-phosphorus-used-gaza-lebanon
+- United Nations Fact Finding Mission on the Gaza conflict
+ https://www.ohchr.org/en/hr-bodies/hrc/special-sessions/session9/fact-finding-mission
 
 
 ### Interviews and Voices to Listen to
@@ -58,20 +75,15 @@ https://www.btselem.org/topic/apartheid
 - Occupation 101 - https://www.youtube.com/watch?v=CwLfpTBgqF4
 
 ## Books - 
-### [The Ethnic Cleansing of Palestine - Ilan Pappe](https://www.goodreads.com/en/book/show/57540)
-- Israeli historian Ilan Pappe details the plan to ethnically cleanse the Palestinian population
-The Hundreds Years War on Palestine - Rashid Khalidi: https://www.goodreads.com/en/book/show/41812831
-The Israel Lobby - John Mershaimer
 
-### [Gaza: An Inquest into Its Martyrdom](https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714)
-- All about Gaza, written by Norman Finkelstein
+  
+- The Ethnic Cleansing of Palestine - Ilan Pappe - https://www.goodreads.com/en/book/show/57540
+- Gaza: An Inquest into Its Martyrdom - https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714
 
+- The Hundreds Years War on Palestine - Rashid Khalidi - https://www.goodreads.com/en/book/show/41812831
 
-### [The Hundreds Years War on Palestine - Rashid Khalidi](https://www.goodreads.com/en/book/show/41812831)
-- All about Gaza, written by Norman Finkelstein
-
-### [The Israel Lobby - John Mershaimer](https://www.goodreads.com/en/book/show/57540)
-- Uuniversity of Chicago Profesor John Mershamimer and Harvard professor Stephen Walt detail the influence of the Israeli lobby on American politics
+- The Israel Lobby - John Mershaimer - https://www.goodreads.com/en/book/show/57540
+- - Uuniversity of Chicago Profesor John Mershamimer and Harvard professor Stephen Walt detail the influence of the Israeli lobby on American politics
 
 
 
