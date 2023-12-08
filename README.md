@@ -7,11 +7,11 @@ The Nakba, Arabic for "catastrophe," refers to the forced displacement and dispo
 remains a deeply significant and painful historical event for them. The term is often used to describe both the events of 1948 and the ongoing consequences for the Palestinian people.
 
 
-<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1cd5c7da-abe6-4b00-b998-6947cd15c146" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="340" height="580" />
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1cd5c7da-abe6-4b00-b998-6947cd15c146" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="500" />
 
-<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="400" height="400" />
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="300" />
 
-<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1a69c50e-5a15-4ddd-be59-813b7ffcae46" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="400" height="400" />
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1a69c50e-5a15-4ddd-be59-813b7ffcae46" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="400" />
 
 
 
