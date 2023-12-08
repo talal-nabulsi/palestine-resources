@@ -7,33 +7,38 @@ The Nakba, Arabic for "catastrophe," refers to the forced displacement and dispo
 remains a deeply significant and painful historical event for them. The term is often used to describe both the events of 1948 and the ongoing consequences for the Palestinian people.
 
 
+### [Tantura Documentary](https://www.tantura-film.com/)
+- Documentary from Israeli directors showing the brutal ethnic cleansing of Palestinian villages, with many gruesome first hand witnesses from Israeli soldiers
+
+### [The Ethnic Cleansing of Palestine - Ilan Pappe](https://www.goodreads.com/en/book/show/57540)
+- Israeli historian Ilan Pappe details the plan to ethnically cleanse the Palestinian population
+
+
+
+
+
 <img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1cd5c7da-abe6-4b00-b998-6947cd15c146" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="500" />
 
 <img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="300" />
 
-<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1a69c50e-5a15-4ddd-be59-813b7ffcae46" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="400" />
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/1a69c50e-5a15-4ddd-be59-813b7ffcae46" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="250" height="400" />
 
 
 
 
+## Israel's apartheid in the West Bank
 
+Numerous human rights groups have written in depth reports on Israel's system of apartheid in the West Bank
 
-[Tantura Documentary](https://www.tantura-film.com/)
+## Human rights reports on Israeli apartheid 
 
-
-The Ethnic Cleansing of Palestine - Ilan Pappe
-
-
-
-Israels system of apartheid in the West Bank
-Human rights reports on Israeli apartheid 
-Amnesty Imternationals report on Israeli apartheid
+### Amnesty Imternationals report on Israeli apartheid
 https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/
 
-Human rights watch's report on israeli apartheid
+### Human rights watch's report on israeli apartheid
 https://www.hrw.org/news/2021/07/19/israeli-apartheid-threshold-crossed
 
-Btselem 
+### Btselem 
 https://www.btselem.org/topic/apartheid
 
 Home Demolitions
@@ -45,7 +50,7 @@ Settler Violence
 - Huwara Pogrom 
 
 
-Interviews from 
+### Interviews to Listen to
 Gabor Mate: https://www.youtube.com/watch?v=yxensYM2R40
 Norman Finkelstein: https://www.youtube.com/watch?v=te1y7ahp2LQ&t=1074s
 
@@ -54,15 +59,30 @@ More voices
 - Ifnotnow org
 
 
-Documentaries
+## Documentaries
 - Tantura Documentary
 - Israelism 
 - Killing Gaza
 - The Lobby - https://www.youtube.com/watch?v=FZA6V7Fa5aw&t=1179s
 - Occupation 101 
 
-Books - 
-Gaza - inquest into martyrdom - Norman Finkelstein
-The Ethnic Cleansing Of Palestine - Ilan Pappe
+## Books - 
+### [The Ethnic Cleansing of Palestine - Ilan Pappe](https://www.goodreads.com/en/book/show/57540)
+- Israeli historian Ilan Pappe details the plan to ethnically cleanse the Palestinian population
 The Hundreds Years War on Palestine - Rashid Khalidi: https://www.goodreads.com/en/book/show/41812831
 The Israel Lobby - John Mershaimer
+
+### [Gaza: An Inquest into Its Martyrdom](https://www.goodreads.com/en/book/show/57540](https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714)
+- Israeli historian Ilan Pappe details the plan to ethnically cleanse the Palestinian population
+
+### [Gaza: An Inquest into Its Martyrdom](https://www.goodreads.com/en/book/show/57540](https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714)
+- All about Gaza, written by Norman Finkelstein
+  
+### [The Hundreds Years War on Palestine - Rashid Khalidi]([[https://www.goodreads.com/en/book/show/57540](https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714](https://www.goodreads.com/en/book/show/41812831))
+- All about Gaza, written by Norman Finkelstein
+
+### [The Israel Lobby - John Mershaimer](https://www.goodreads.com/en/book/show/57540](https://www.amazon.com/Gaza-Inquest-into-Its-Martyrdom/dp/0520295714)
+
+
+
+
