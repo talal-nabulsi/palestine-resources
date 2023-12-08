@@ -83,7 +83,7 @@ Israeli settlers in the West Bank routinely harrass and attack Palestinians in t
 - The Hundreds Years War on Palestine - Rashid Khalidi - https://www.goodreads.com/en/book/show/41812831
 
 - The Israel Lobby - John Mershaimer - https://www.goodreads.com/en/book/show/57540
-- - Uuniversity of Chicago Profesor John Mershamimer and Harvard professor Stephen Walt detail the influence of the Israeli lobby on American politics
+  -  Uuniversity of Chicago Profesor John Mershamimer and Harvard professor Stephen Walt detail the influence of the Israeli lobby on American politics
 
 
 
