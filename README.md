@@ -26,9 +26,6 @@ remains a deeply significant and painful historical event for them. The term is 
 
 <img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/b4d3ad96-2b78-435f-a075-a3d210cf89b9" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="150" />
 
-<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e629e323-826a-43b3-8063-cea5b771ab48" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="150" />
-
-
 ### Amnesty Internationals report on Israeli apartheid
 https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/
 
@@ -51,6 +48,9 @@ Israeli settlers in the West Bank routinely harrass and attack Palestinians in t
 
 
 <img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/0128907a-38ba-4cf8-9f22-26be54bc91a1" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="500" height="500" />
+
+<img src="https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e629e323-826a-43b3-8063-cea5b771ab48" alt="" data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="300" height="300" />
+
 
 
 ## Gaza
