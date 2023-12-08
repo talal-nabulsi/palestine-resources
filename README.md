@@ -16,6 +16,8 @@ remains a deeply significant and painful historical event for them. The term is 
 
 ![Nakba](https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4)
 
+<img src="Nakba" data-canonical-src="[[https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png](https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4)](https://github.com/talal-nabulsi/palestine-resources/assets/7799496/e9a924c6-9631-4b39-bf16-df58465b11e4)" width="200" height="400" />
+
 
 [Tantura Documentary](https://www.tantura-film.com/)
 The Ethnic Cleansing of Palestine - Ilan Pappe
