@@ -4,7 +4,6 @@
 Palestine pre-1948
 - UN population map
 
-- ![PalestineMap](https://github.com/talal-nabulsi/palestine-resources/assets/7799496/ae72ef0b-6de3-4b2f-830a-bf51be8f7e59)
 
 
 ## The Nakba
