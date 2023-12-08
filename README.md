@@ -9,6 +9,10 @@ remains a deeply significant and painful historical event for them. The term is 
 
 ### [Tantura Documentary](https://www.tantura-film.com/)
 - Documentary from Israeli directors showing the brutal ethnic cleansing of Palestinian villages, with many gruesome first hand witnesses from Israeli soldiers
+- Clip from Tantura - https://twitter.com/incontextmedia/status/1600493875746963457?s=46
+
+> Zionist soldier, while laughing in an Interview with the Israeli channel Hot 8:
+"We put Palestinians in cages and killed them. One of us raped a sixteen-year-old girl; some of us ran after them with flame throwers and burned them."
 
 ### [The Ethnic Cleansing of Palestine - Ilan Pappe](https://www.goodreads.com/en/book/show/57540)
 - Israeli historian Ilan Pappe details the plan to ethnically cleanse the Palestinian population
